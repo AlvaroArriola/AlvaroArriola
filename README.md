@@ -8,12 +8,10 @@
 - 📢 Debate club member
 - 🏎️ Tennis, football and F1 enthusiast
 
-
 ## Connect with me ☕ :
-
 <br>
 
-[![@AlvaroArriola](https://img.icons8.com/fluency/48/000000/linkedin.png)](https://www.linkedin.com/in/alvaro-arriola-hernan/) [![@alvaro.arriola.hernan@gmail.com](https://img.icons8.com/fluency/48/000000/apple-mail.png "@alvaro.arriola.hernan@gmail.com")](alvaro.arriola.hernan@gmail.com)
+[![@AlvaroArriola](https://img.icons8.com/fluency/48/000000/linkedin.png)](https://www.linkedin.com/in/alvaro-arriola-hernan/) [![@alvaro.arriola.hernan@gmail.com](https://img.icons8.com/fluency/48/000000/apple-mail.png "@alvaro.arriola.hernan@gmail.com")](mailto:alvaro.arriola.hernan@gmail.com)
 
 <br>
 
