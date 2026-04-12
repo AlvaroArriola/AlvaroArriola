@@ -6,7 +6,7 @@
 - 🎓 Currently studying Mathematical Engineering and AI at [ICAI](https://www.comillas.edu/en/degrees/bachelors-degree-in-engineering-mathematics-and-artificial-intelligence/)
 - 💬 Trilingual: Spanish, English, German
 - 📢 Debate club member
-- 🏎️ Tennis, football and F1 enthusiast
+- ⚽ Football, tennis and F1 enthusiast
 
 ## Connect with me ☕ :
 <br>
