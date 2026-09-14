@@ -2,7 +2,6 @@
 
 ## About Me :
 
-- 🏢 Looking forward to working as an intern
 - 🎓 Currently studying Mathematical Engineering and AI at [ICAI](https://www.comillas.edu/en/degrees/bachelors-degree-in-engineering-mathematics-and-artificial-intelligence/)
 - 💬 Trilingual: Spanish, English, German
 - 📢 Debate club member
